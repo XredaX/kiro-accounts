@@ -141,6 +141,7 @@ We assist with:
 - Technical support
 - Refund requests
 
-**Contact:** [redaelbettioui@gmail.com](mailto:redaelbettioui@gmail.com) | [Telegram: @kiro_acc](https://t.me/kiro_acc)
+**Contact:** [redaelbettioui@gmail.com](mailto:redaelbettioui@gmail.com) | [Telegram: @reeeeeda](https://t.me/reeeeeda)
+
 
 
