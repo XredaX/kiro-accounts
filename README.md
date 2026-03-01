@@ -16,7 +16,7 @@ Get instant access to Kiro AI with pre-verified accounts. No monthly subscriptio
 
 **Email:** [redaelbettioui@gmail.com](mailto:redaelbettioui@gmail.com)
 
-**Telegram:** [@kiro_acc](https://t.me/reeeeeda)
+**Telegram:** [@reeeeeda](https://t.me/reeeeeda)
 
 **Response Time:** 1-4 hours
 
@@ -142,4 +142,5 @@ We assist with:
 - Refund requests
 
 **Contact:** [redaelbettioui@gmail.com](mailto:redaelbettioui@gmail.com) | [Telegram: @kiro_acc](https://t.me/kiro_acc)
+
 
